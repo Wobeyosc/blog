@@ -13,7 +13,7 @@ To try.
 
 Listening to this podcast tonight gave me the moment of clarity. Where I saw what my life would be in 5 years if I don't start today. 
 
-[Choiceology with Katy Milkman | S6:EP6 If Only](https://www.schwab.com/resource-center/insights/content/choiceology-season-6-episode-6)
+[Choiceology with Katy Milkman - S6:EP6 If Only](https://www.schwab.com/resource-center/insights/content/choiceology-season-6-episode-6)
 
 
 
